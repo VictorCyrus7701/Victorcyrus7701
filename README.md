@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently Studing.
+- 🔭 I’m currently Studying.
 - 🌱 I’m currently learning Coding.
 - 👯 I’m looking to collaborate on Geoengineering 🖤💙🧡❤💚🤎🤍💜💛💕💗💝.
 - 🤔 I’m looking for more coding techniques😙
